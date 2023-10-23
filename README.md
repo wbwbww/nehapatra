@@ -21,4 +21,4 @@ TUTION <>INFINITY STUDY CENTER<>
 ---/ link /////-----
 https://www.facebook.com/neha.patra.50115?mibextid=ZbWKwL ---please contact us by this link---
 ---THANK YOU---
-https://wbwbww.github.io/nehapatra/
+
